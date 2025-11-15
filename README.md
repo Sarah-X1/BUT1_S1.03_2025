@@ -4,5 +4,5 @@
 > 
 > BUT1
 > Année : 2024-2025
-> Période : fin décembre jusqu'au 20 janvier
+> Période : fin décembre 2024 jusqu'au 20 janvier 2025
 ---
